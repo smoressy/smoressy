@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @smoressy! I am only named that because smores/smoresxo was taken lol.. learn more about me at https://smoresxo.shop or https://smoresxo.cyou <br>
-- For myself lol: https://github.com/smoressy/love
+follow me on tiktok @smoresxo
